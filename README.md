@@ -1,0 +1,1 @@
+# lotto-intel-pro-support
